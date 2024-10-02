@@ -1,0 +1,1 @@
+oiii gente do meu canal
